@@ -134,3 +134,11 @@ EDA_Optimising_NYC_Taxis
 LinkedIn: *[Kartikey_Singh](https://www.linkedin.com/in/btwitskartiksinghdatanalyst/)*
 
 GitHub: *[Kartikey_Singh](https://github.com/T3MP35TT)*
+
+Portfolio : *[Kartikey_Singh](https://sites.google.com/view/kartikeysingh09/home)*
+
+Complete WriteUp: Coming Soon....
+
+LinkedIn: *[Kartikey_Singh](https://www.linkedin.com/in/btwitskartiksinghdatanalyst/)*
+
+GitHub: *[Kartikey_Singh](https://github.com/T3MP35TT)*
